@@ -35,3 +35,4 @@ Case study and prevention checklist.
 
 ## Links
 - Google Form: https://docs.google.com/forms/d/e/1FAIpQLSfmlOpQocTaypQOF63UjBL6LRYyW3UEoGYA_Cq7fhMpAKtN2Q/viewform?usp=dialog
+- LinkedIn: https://www.linkedin.com/in/tanisha-deshpande-56297037a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
